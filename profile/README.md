@@ -1,4 +1,4 @@
-# 黒n/L KURONLABS
+# 黒n/LABS or KURONLABS
 
 **From thought to system.**
 
